@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+Hi, so im Elija and im a Swiss Homelabber and Computer Enthusiast and i want to start my own Blog!
 
-Maybe say a some things about yourself.
+I want to Blog about the Things in Life where my Homelabbing and Programming Skills can help and where i can give a Tutorialish Blog Post
 
-Or maybe what you plan to blog about.
+If you want to know more about me visit justsomeone.ch (The Main Domain) for more Informations about me but Warning it is in German
+
+I hope you enjoy it and lets get to the Reading (or for me to the Writing xD)
